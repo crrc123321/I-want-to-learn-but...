@@ -1,2 +1,7 @@
-# I-want-to-learn-but...
-I want to memorize the words manually,but I also hate the Fuckkkkkkkk verify(such as 'E820'),have any way to solve it?Use this tool!
+如果我想手背单词，但那个该死的验证码我感觉很烦，怎么办？
+
+**用它啊！一站式帮你解决掉所有助手拉的史**
+
+更有其他个小工具可以选择~主打一个**全面+贴心**
+
+来吧来吧，都来吧，不要再被**该死的验证码**困扰辣
